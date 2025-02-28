@@ -12,6 +12,7 @@ imapact and build a successful career. I'm always on the lookout for new and int
 When I'm not coding you can find me curled up with a good rom-com book and exploring new coding concepts just for fun. I'm always eager to learn from 
 other developers
 Feel free to reach out:
+
 Email: akhonamngazi46@gmail.com
 Phone: 0682223293
 
